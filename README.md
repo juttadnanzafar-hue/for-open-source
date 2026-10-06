@@ -1,1 +1,1 @@
-(https://1password.com/blacked 
+(https://1password.co
